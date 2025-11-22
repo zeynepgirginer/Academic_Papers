@@ -15,7 +15,7 @@ A compact research note analyzing the Life-Cycle/Permanent Income Hypothesis and
 
 
 
-### **2. Supplying Kidneys: Argumentative Essay** 
+### **2. The Kidney Market-An Analysis** 
 
 
 
